@@ -9,7 +9,7 @@
 
 Valeu!![](C:\workspace-flexbox-dio-santander\imagens\logo-edson.png)
 
-[^Edson França Vasconcelos ]: :telephone_receiver: 81-9-9268-6400
+Edson França Vasconcelos: :telephone_receiver: 81-9-9268-6400
 
 
 
